@@ -9,5 +9,3 @@ Dr. Singhal is not just skilled but also super humble and kind, which is rare. H
 If someone in your family needs cancer surgery, Dr. Nitin Singhal is definitely someone worth talking to. He’s experienced, trustworthy, and really cares about each patient.
 
 👉 https://www.drnitinsinghal.com/dr-nitin-singhal-cancer-surgeon-india/#
-
-2. What qualifications and experience does Dr. Nitin Singhal have in
